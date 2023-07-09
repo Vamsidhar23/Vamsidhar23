@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **vamsidharg2002@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1hc_t8HI999F6RfUa_SxhJEN-elpBjuJF/view?usp=sharing](https://drive.google.com/file/d/1hc_t8HI999F6RfUa_SxhJEN-elpBjuJF/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1g-jnATzV68UlYEcjfM_yV-sAymcSGPNd/view?usp=sharing)
 
 - ⚡ Fun fact **I am having great sense of humor**
 
